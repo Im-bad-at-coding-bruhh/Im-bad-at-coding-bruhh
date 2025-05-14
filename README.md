@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... python 🤧
 - 💞️ I’m looking to collaborate on ... Anything AI
 - 📫 How to reach me ... uyieziirmiya@gmail.com 🙃
-- 😄 Pronouns: ... lol I'm a dude 🤌
+- 😄 Pronouns:
 - ⚡ Fun fact: ... I still believe learning coding is impossible 😔 
 
 <!---
