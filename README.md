@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... Anything AI
 - 📫 How to reach me ... uyieziirmiya@gmail.com 🙃
 - 😄 Pronouns:
-- ⚡ Fun fact: ... I still believe learning coding is impossible 😔 
+- ⚡ Fun fact: ... Big weeb
 
 <!---
 Im-bad-at-coding-bruhh/Im-bad-at-coding-bruhh is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
